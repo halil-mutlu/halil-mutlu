@@ -4,5 +4,5 @@
 
 - 📫 How to reach me email = himtl-008@hotmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i am not gay
+
 
